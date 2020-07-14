@@ -11,6 +11,6 @@ if u wanna contact me im available at:
 
 [Steam](steamcommunity.com/id/rezwaki)
 
-[Instagram](instagram.com/rezwaki (rarely checked))
+[Instagram](instagram.com/rezwaki) (rarely checked)
 
 Discord: rezzy#3435
